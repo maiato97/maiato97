@@ -1,5 +1,4 @@
 - 👋 Olá! meu nome é Carolina
-- 🎮 Estudante de Jogos Digitais
 - 🕹️ Apaixonada por Design e Desenvolvimento 
 - 🌱 Em busca de conhecimento
 - Contatos:
